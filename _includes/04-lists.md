@@ -1,4 +1,4 @@
-## :sparkles: Interests :sparkles:
+## Interests
 * Finding new music on Spotify
 * Having 23422423+ tabs on one window
 * Reading WebToons
